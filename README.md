@@ -9,9 +9,9 @@ Me chame de Ray ou Cookie
 -Não sou boa me descrevendo :(
 
 
-### Entre em contato comigo no instagram por:
+### Entre em contato comigo no Instagram por:
 
-     @raytatouille
+     @raytatouilleee
 
 
 ### Wanna be a star like litlle Peep ⭐
