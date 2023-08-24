@@ -1,16 +1,19 @@
-### Hi there 👋
+### O perfil de uma pessoa confusa que não entende muito de programação.🩹❤️‍🩹 👋
 
-<!--
-**whoiscookiez/whoiscookiez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chame de Ray ou Cookie
 
-Here are some ideas to get you started:
+-Estou aprendendo a mexer com computação/programação;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Estou em busca de um emprego na área e uso este site para minha organização;
+
+-Não sou boa me descrevendo :(
+
+
+### Entre em contato comigo no instagram por:
+
+     @raytatouille
+
+
+### Wanna be a star like litlle Peep ⭐
+
+![](https://media.tenor.com/NxhIozfO0gcAAAAM/lilpeep.gif)
